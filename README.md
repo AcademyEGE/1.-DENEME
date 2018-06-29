@@ -1,0 +1,2 @@
+# 1.-DENEME
+İLK DENEME
